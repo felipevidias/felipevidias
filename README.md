@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Felipe Dias 
+#  Felipe Dias 
 
 **`Cybersecurity Enthusiast`**
 
